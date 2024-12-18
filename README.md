@@ -15,8 +15,8 @@
 ![Anie's GitHub stats](https://github-readme-stats.vercel.app/api?username=Anie22&show_icons=true&theme=radical)
 
 🔗 **Connect with Me**:
-- [LinkedIn](https://www.linkedin.com/in/anie22)
-- [Twitter](https://twitter.com/anie22)
+- [LinkedIn](https://www.linkedin.com/mwlite/in/aniebiet-francis-9a4b60235)
+- [Twitter](https://twitter.com/AniebietFranci4)
 - [Personal Blog](https://anie22.github.io/blog)
 
 💡 **Fun Fact**:
