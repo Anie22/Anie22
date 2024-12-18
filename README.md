@@ -17,13 +17,12 @@
 🔗 **Connect with Me**:
 - [LinkedIn](https://www.linkedin.com/mwlite/in/aniebiet-francis-9a4b60235)
 - [Twitter](https://twitter.com/AniebietFranci4)
-- [Personal Blog](https://anie22.github.io/blog)
 
 💡 **Fun Fact**:
 - I love solving puzzles and playing chess in my free time.
 
 📫 **How to reach me**:
-- You can reach me via email at anie22@example.com
+- You can reach me via email at francisaniebiet678@gmail.com
 
 ---
 
