@@ -15,8 +15,8 @@
 ![Anie's GitHub stats](https://github-readme-stats.vercel.app/api?username=Anie22&show_icons=true&theme=radical)
 
 🔗 **Connect with Me**:
-- [LinkedIn](https://www.linkedin.com/mwlite/in/aniebiet-francis-9a4b60235)
-- [Twitter](https://twitter.com/AniebietFranci4)
+- [LinkedIn](https://www.linkedin.com/in/aniebiet-francis4/)
+- [Twitter](https://x.com/AniebietFranci4)
 
 💡 **Fun Fact**:
 - I love solving puzzles and playing chess in my free time.
